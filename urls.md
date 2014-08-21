@@ -1,5 +1,6 @@
-Articles, Case Study and Other Resource Links
-=============================================
+Resources on Consumer Science
+=============================
+**Articles, Case Study and Other Resource Links**
 
 
 Case Study
