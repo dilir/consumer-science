@@ -15,7 +15,6 @@ Articles
   * For example, Sainsbury's discovered that a cereal brand called Grape-Nuts was worth stocking – despite weak sales –    because the shoppers who bought it were extremely loyal to Sainsbury's and often big spenders.
   * Clubcard TV director Scott Deutrom boasted on his blog that "we can target adverts based on what our customers bought yesterday" (a Tesco spokesperson later claimed this was just "a vision" at the moment).
   * In other words, "disloyal" customers tend to be offered the best incentives. So, if you want more love from your favourite supermarket, start shopping at its competitors. Donna Ferguson
-
 * http://www.theguardian.com/money/2013/jun/08/supermarkets-get-your-data
 * http://www.theguardian.com/business/2005/sep/20/freedomofinformation.supermarkets
 * http://www.theguardian.com/lifeandstyle/2003/jul/19/shopping.features
