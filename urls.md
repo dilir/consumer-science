@@ -5,3 +5,7 @@ Articles, Case Study and Other Resource Links
 + http://www.theguardian.com/business/2005/sep/20/freedomofinformation.supermarkets
 + http://www.theguardian.com/lifeandstyle/2003/jul/19/shopping.features
 + 
+
+Case Study
+----------
++ http://www.brandrepublic.com/news/231984/
