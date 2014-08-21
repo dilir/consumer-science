@@ -22,5 +22,13 @@ Articles
 * http://www.ukessays.com/services/example-essays/marketing/loyalty-cards-data-integrity.php
 * http://www.nytimes.com/2013/07/15/business/attention-shopper-stores-are-tracking-your-cell.html?adxnnl=1&pagewanted=all&adxnnlx=1408619185-/ WSsLkiWKepwibTm8YVS6Q
 
+Dedicated Site
+--------------
+* http://www.jimnovo.com/Recency-Model.htm
+  * http://www.jimnovo.com/profiles.htm
+  * http://www.jimnovo.com/models.htm
+
 Papers
 ------
+
+
