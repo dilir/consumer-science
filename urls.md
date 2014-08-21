@@ -9,3 +9,4 @@ Articles, Case Study and Other Resource Links
 Case Study
 ----------
 + http://www.brandrepublic.com/news/231984/
+"Customers have a very high level of engagement with the card programme, especially women who see the points as providing a treat for themselves," says John Wallinger, planning director at Boots DM agency Craik Jones Watson Mitchell Voelkel. "But we recognised there was a great opportunity to get a customer to buy a wider breadth of goods from Boots than they might be buying elsewhere."
