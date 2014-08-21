@@ -11,6 +11,8 @@ Articles
 --------
 + http://www.nytimes.com/2012/02/19/magazine/shopping-habits.html?pagewanted=all&_r=0
 + + http://www.select-statistics.co.uk/article/blog-post/how-do-supermarkets-use-your-data
+For example, Sainsbury's discovered that a cereal brand called Grape-Nuts was worth stocking – despite weak sales – because the shoppers who bought it were extremely loyal to Sainsbury's and often big spenders. 
+
 + http://www.theguardian.com/money/2013/jun/08/supermarkets-get-your-data
 + http://www.theguardian.com/business/2005/sep/20/freedomofinformation.supermarkets
 + http://www.theguardian.com/lifeandstyle/2003/jul/19/shopping.features
